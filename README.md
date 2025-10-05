@@ -7,7 +7,7 @@ I only used a BB0-1120 on the bathroom window. All the baldosas are Cargador typ
 
 Made with Blender3D OpenSource
 
-Buy Me a Beer, Starbucks Expresso or send a cheese burguer .... [Paypal](https://www.paypal.me/gospelOfLuke/25).
+Did you like it? send me funds,help me to pay my MIT major ... [Paypal](https://www.paypal.me/gospelOfLuke/25).
 
 https://www.youtube.com/watch?v=lkwnU8QPG0Q
 
